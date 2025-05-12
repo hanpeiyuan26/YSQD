@@ -1,1 +1,1 @@
-# YSQD
+# cheat.github.io
